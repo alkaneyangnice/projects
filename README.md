@@ -8,7 +8,5 @@ Thank you very much
 
 Let’s work diligently
 
-Let’s complete that.
-
-I am happy.  Affirmative
+Let’s complete 
 
