@@ -12,5 +12,3 @@ Let’s complete that.
 
 I am happy.  Affirmative
 
-We are all happy
-
