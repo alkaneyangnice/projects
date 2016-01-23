@@ -14,5 +14,3 @@ I am happy.  Affirmative
 
 We are all happy
 
-The final goal achieved.
-
