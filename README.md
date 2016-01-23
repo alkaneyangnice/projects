@@ -14,5 +14,3 @@ I am happy.  Affirmative
 
 We are all happy
 
-do that again
-
