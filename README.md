@@ -6,7 +6,8 @@ Yes, do it
 
 Thank you very much
 
-Let’s work diligently
+Letâ€™s work diligently
 
-Let’s complete that.
+Letâ€™s complete that.
 
+I am happy.  Affirmative
