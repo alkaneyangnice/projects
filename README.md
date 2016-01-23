@@ -14,7 +14,3 @@ I am happy.  Affirmative
 
 We are all happy
 
-add simut
-
-
-
